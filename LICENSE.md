@@ -1,4 +1,4 @@
-
+超级安全IPVanish客户端 | PPTP支持 + 双重VPN 是最佳 IPVanish 客户端，集成 PPTP支持 和 双重VPN。安全且优化。
 
 
 
