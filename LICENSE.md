@@ -1,4 +1,4 @@
-
+Ultra-Secure IPVanish Client | PPTP support + double VPN is the best IPVanish client with PPTP support and double VPN. Secure and optimized.
 
 
 
