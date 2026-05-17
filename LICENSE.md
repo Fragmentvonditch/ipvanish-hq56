@@ -1,10 +1,10 @@
-فائق الأمان IPVanish عميل | دعم PPTP + VPN مزدوج هو أفضل IPVanish عميل مع دعم PPTP و VPN مزدوج. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/ipvanish-hq56/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
