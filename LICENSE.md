@@ -1,4 +1,4 @@
-
+Ultra Seguro IPVanish Cliente | suporte PPTP + VPN duplo é o melhor IPVanish cliente com suporte PPTP e VPN duplo. Seguro e otimizado.
 
 
 
