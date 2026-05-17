@@ -1,10 +1,10 @@
-Ultra Seguro IPVanish Cliente | soporte PPTP + VPN doble es el mejor IPVanish cliente con soporte PPTP y VPN doble. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/ipvanish-hq56/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
